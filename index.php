@@ -1,1 +1,1 @@
-mudei tudo essa merda
+mudei pra lixo
